@@ -1,4 +1,4 @@
-## Hi Guys 👋
+## 平时不努力，假期来摸鱼🐣~~
 
 <img align="right" src="https://count.getloli.com/get/@:Polumm?theme=moebooru">
 ----
