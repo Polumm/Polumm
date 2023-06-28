@@ -1,4 +1,4 @@
-## 平时不努力，假期来摸鱼🐣~~
+## Hello world🐣~~
 
 <img align="left" src="https://count.getloli.com/get/@:Polumm?theme=moebooru">
 <img align="left" src="https://github-readme-stats-hassan.vercel.app/api?username=Polumm&theme=default_repocard&show_icons=true&count_private=true">
